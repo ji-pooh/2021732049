@@ -1,1 +1,1 @@
-# 20020828 Lee jihoo
+# 2001.05.12 Kim Min Jae
